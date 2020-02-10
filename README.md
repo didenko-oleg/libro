@@ -15,25 +15,41 @@
 «Grazie Wose!» Ringrazio` Roy.
 
 Roy si alleno` tanto, e alla fine aveva finito di allenarsi. Dopo qualche giorno l` esercito di militari era gia nel villaggio. Uno dopo l` altro muoriva, Roy e Wose combattevano come dei veri guarrieri. Quando la guerra fu` finita Roy e Wose festeggiarono.
+
 «Wose abbiamo vinto alla  gurra!!!!» Esclamo` Roy allergo.
+
 «Si, Roy abbiamo vinto!!!!» Urlai dall`alegria Wose.
-«Si, pero non credo che sia ora un posto sicuro.»   Disse Roy.
-«Roy facciamo una casa ma nascosta, almeno non dovremmo cercare di proteggere un grosso villaggio, ma una piccola casetta.» Disse Wose propporendo un idea .
-Dopo questa guerra i due amici partirono per  la ricerca di un postoideale per la casa. 
+
+«Si, pero non credo che sia ora un posto sicuro.»   Disse Roy
+.
+«Roy facciamo una casa ma nascosta, almeno non dovremmo cercare di proteggere un grosso villaggio, ma una piccola casetta.» Disse Wose propporendo un idea.
+
+Dopo questa guerra i due amici partirono per la ricerca di un postoideale per la casa. 
 «Wose fa` caldo. Hai l` acqua?» chiese Roy.
+
 «No, midispiace ma non abbiamo l`acqua.» Rispose Wose cofermando che mancava l`acqua.
+
 «C`osaaa!!!???? Non abbiamo l`acqua ???»  Richiese Roy.
+
 «Hai detto bene Roy, non abbiamo l`acqua» Rspose Wose.
+
  I giorni passavano,le ore passavano, il tempo passava , ma i due amici non trovarono niente. Finche non trovassero il bosco dagli alberi di Acacia.
  
 «Hei, Wose siamo arrivati?» Chiese Roy sospirando dalla stanchezza.
+
 «Non abbiamo trovato nessun posto ideale Roy»  Rispose Wose.
+
 «Ma noi gia` lo stiamo cercando da uno,due,tre… insomma tonti giorni, non credi?»  Disse Roy.
+
 Passavano tanti giorni alla fine dopo tanto Roy e Wose trvarono un villaggio anche se non era quello che cercavano, il villaggio non era grande e non tanto piccolo, insomma a loro e` piaciuto e hanno deciso di viverci. Tanti di voi qando trovate un villaggio per non fare fatica prendete le case dei villager, a loro non piacera`, avvolte non si protteggono neanche, perche non hanno una casa, stanno fuori e si lasciano mangiare dagli zombie.Ma i due amici decisero di fare una propria casa, vi chiederete perche` volevano un` po` piu compania, ciue` i villager, perche stare «soli» e` um`po` tristino, infatti io quando creo un mondo cerco sempre un villaggio.
-«Ma perche` credi che sia una cattiva idea rubare una casa a un villager Wose?»  Chiese Roy.
-«Dimmi perche`siamo partiti alla ricerca di un posto dove vivere?»  Riuspose Wose con un`altra domanda. 
+«Ma perche` credi che sia una cattiva idea rubare una casa a un villager Wose?»  Chiese Roy
+.
+«Dimmi perche`siamo partiti alla ricerca di un posto dove vivere?»  Riuspose Wose con un`altra domanda.
+
 «Mmm… perche`  non avevamo piu i nostri amici villager.»  Roy cerco` di indovinare perche`sono partiti alla ricerca di un posto dove vivire.
+
 «Si` e perche` non avevamo piu una casa, capito Roy?»  Spiego` Wose a Roy.
+
 Alla fine tutti e due decisero di fare  una casa per tutti e due. Loro per la casa decisero di usare il legno,la pietra,il vetro. Allinizio pensavano di  fare una casa a un piano ma dopo cambiarono idea,  pensavano prima di fare una stanza per entrambi, ma dopo decisero di fare in modo che ognuno abbia la  sua. Roy stava al piano di sopra e Wose stava sotto. Passavano giorni e giorni e la casa fu finita, non era grande perche non serve grande a loro basta  una casa piccola.
 
 ![pic](maxresdefault.jpg)
@@ -44,18 +60,27 @@ Alla fine tutti e due decisero di fare  una casa per tutti e due. Loro per la ca
 Anche io vorrei vivere la` dentro. I ragazzi ci hanno lavorato tanto per far questa casa e tanta attenzione                   per farla dritta e precisa. Wose andava a prendere la legna come un vero boscaiolo, Roy andava a comprare qualcosa di inutile dai villlager, oppure proteggeva il villaggio, nel senso che continuava il suo lungo muro di legna e pietra intorno al villaggio. Quando erano stanchi e non avevano voglia di prendere la legna,fare il muro o di comprare dai villager i ragazzi  andavano in caverna.
 
 «E` da tanto che non ci attaccano o ci fanno qualcosa di cattivo.» Disse Roy saltendando dalla gioia.
+
 «Non ti pare stano che da tanto non ci vogliono morti?»  Domando` Wose.
+
 «No, ansi ne sono sicuro!»  Rispose Roy saltellando ancora.
 
 Passo` un mese e ancora niente di strano.Wosa e Roy decisero di far una passeggiata per il villaggio di mattina, mentre passeggiavano un villager si avvicino` e gli disse che si devono salvare perche verso il loro villaggio si dirigeva uno zunami. Roy e Wose si spaventarono, Roy decise  di allungare il muro ma a Wose non sembrava una bella idea. Quindi decise  proteggere la casa, ovviamente sinche` che avevano tantissima legna decise di proteggere la casa  con il legno, invece Roy stava  ancora a costruire quel muro di legno e pitra.  Dopo un giorno il zunami era molto ma molto vicino al loro villaggio, e dopo poco tempo inizio a coprire il villaggio di Roy e Wose. Il muro di Roy ha resistito le prime trenta quatro orde dello zunami ma dopo  il zunami l`ha coperti tutto. Wose sapeva che sarebbe successo qualcosa del genere e quindi sotto il suo letto ha fatto un passaggio segreto che portava sotto terra.
 Il passaggio era fatto di pietra.
-«A… ecco dove e` finita tutta la  pietra, che io aavevo preso.»  ussuro` Roy tra se` stesso.
+
+«A… ecco dove e` finita tutta la  pietra, che io avevo preso.»  ussuro` Roy tra se` stesso.
+
 Anche se non era il posto piu bello, ci trascorsero tanti giorni aspettando che lo zunami che ha coperto il villaggio.
 Passavano giorni e giorni, e dopo 28 giorni lo zunami passo`, Roy e Wose uscirono dal nascondiglio. Il villaggio era distrutto, non si vedeva  neanche un villager, di solito tutti i villager stavano fuori dalle proprie case a parlare, ma ora non c`era neanche un` anima dei villager. Cosi tanto tempo a costruire la casa e dopo buttata giu`da uno zunami, almeno la loro casa era ancora un` po` «viva», pero` anche lei era  distrutta.
+
 «Ma come, come e` possibile di nuovo tutto distrutto!!!!!!!????»  Esclamo` Roy.
+
 «Si` e` proprio cosi` Roy.»  Ribatte` Wose dispiaciuto.
+
 «Allora non credi Wose che dovremmo fare una casa sotto terra?» Roy propose un`idea.
+
 «Bella idea, se facciamo la casa sotto terra e se uno zunani ci volesse distruggere dinuvo non ci fara` niente perche` saremmo sotto terra!» Confermo` Wose felice. 
+
 E` cosi` Roy e Wose costruissero una casa sotto terra, la casa era fatta come al solito di legno e pietra. Il pavimento era di legno e le pareti di pietra, l`boccaporto era di ferro con la leva, dentro era gia tutto pronto,il forno, i letti, le casse… grazie all` idea di Roy, Roy e Wose si salvarono da altri zunami che passavano per il loro mondo.
 
 
@@ -63,17 +88,25 @@ E` cosi` Roy e Wose costruissero una casa sotto terra, la casa era fatta come al
 
 
 
-                                                          
+                                          
 «Visto Wose, io avevo ragione quando ti ho proposto quell`idea.»  Disse Roy pensando  come era geniale.
+
 «Si, ok bravo Roy »  Rispose Wose ignorandolo um`po`.
-Un giorno Roy ando` a prendere la legna, mentre prendeva la legna vide una persona, la persona era con gli occhi bianchi e il resti era uguale al corpo di Steve. Roy decise di avvicinarsi e fare amicizia, quando si  avvicino`, la peresona gli ha dato un cazzotto dall`basso in alto e gli dii un calco, in modo che lui si scontro` con la schiena addosso a un albero, poi la persona si  teletrosporto` vicino a lui, quendo apparve aveva gia una spada di diamante ed era pronto a infizzarla, pero in quel mommento Roy tiro` fuori l` ascia di ferro e parai` l`infilzo, gli un calcio in faccia e anche lui si scontro` contro un albero, pero il calcio non era troppo forte e la persona fece un salto all` indietro si fermo` a mezza strada e poi spari` nel nulla.
-Dopo questo Roy ovviamente avviso` Wose di questa storia. Wose non creddette a questa storia e decise di andare a controllare. La persona non si vedeve e non si sentiva, non c`era.
+
+Un giorno Roy ando` a prendere la legna, mentre prendeva la legna vide una persona, la persona era con gli occhi bianchi e il resti era uguale al corpo di Steve. Roy decise di avvicinarsi e fare amicizia, quando si  avvicino`, la peresona gli ha dato un cazzotto dall`basso in alto e gli dii un calco, in modo che lui si scontro` con la schiena addosso a un albero, poi la persona si  teletrosporto` vicino a lui, quendo apparve aveva gia una spada di diamante ed era pronto a infizzarla, pero in quel mommento Roy tiro` fuori l` ascia di ferro e parai` l`infilzo, gli un calcio in faccia e anche lui si scontro` contro un albero, pero il calcio non era troppo forte e la persona fece un salto all` indietro si fermo` a mezza strada e poi spari` nel nulla.Dopo questo Roy ovviamente avviso` Wose di questa storia. Wose non creddette a questa storia e decise di andare a controllare. La persona non si vedeve e non si sentiva, non c`era.
+
 «Roy ne sei certo che la persona era in questo posto?»  Domando` Wose.
+
 «Si`, ne sono certo.»  Rispose Roy certo di se`. 
+
 Dopo questa storia tutti e due andarono a dormire, il giorno dopo sta volta Wose ando` a prendere la legna perche` Roy aveva paura dopo quella storia, Wose invece non aveva paura perche` non credeva in questa storia, quindi ando` tranquillo a prendere la legna. Torno` di sera peche` aveva preso tanta legna, invece Roy sene stava sul divano tutto comodo a guardare su youtobe di questa persona. 
+
 «Senti Wose, guarda il che ho trovato su Youtube!»  Roy fece vedere un video.
+
 Il video parlava di una persona chiamata Herobrine, aveva gli occhi bianchi e il resto cioe` il corpo era di Steve, era cattiva e non era mai stanco di uccidere e di tormentare la gente.
+
 «Wow, era cosi`? Era cosi spaventoso?»  Domando`Wose.
+
 «Si` era proprio cosi quando l` ho visto, si ` era cosi` spaventoso.»  Rispose Roy spaventato.
 
 
@@ -88,20 +121,34 @@ Il video parlava di una persona chiamata Herobrine, aveva gli occhi bianchi e il
 
 
 «Dobbiamo protteggertci da quel Herobrine!» Esclamo` Wose.
+
 «Si` hai ragione Wose, e` vero.»  Confermo` Roy.
+
 «Ma   facciamo la prottezzione? Una palla sopra di noi di vetro? E di cosa sara` fatta?»  Domandava di continuo Roy seza fermarsi.
+
 «Questa e` una cattiva idea del globo di vetro.»  Disse Wose.
+
 «Fai in fretta, io credo che Herbrine tornera` a provare a ucciderci Wose!»  Preuccupato Disse Roy.
+
 «Ci provero` Roy, provero` a inventarmi qual` cosa.»  Disse Wose gia`  pensansando a un idea.
+
 La mattina dopo Wose si era alzato molto presto a pensare a qualcosa per proteggerela loro casa o loro stessi.
 «Roy! Roy! Mi sono venute delle  idee magnifiche!»  Gridava Wose dalla felicita`.
+
 «Queste idee sono meglio del mio sogno?»Domando` Roy ancora addormentato.
+
 «Si` sono meglio, Roy alzati.» Rispose Wose.
+
 «Ok, ora arrivo, fammi vestire.» Disse Roy`alzandosi dal divano.
+
 «Si` ma sbrigati Roy, io ti aspetto in cucina davanti alla carne di ieri sera.» Rispose Wose gia` andando in cucina.
+
 «O… eccoti Roy, sei qui tieni la carne, tell`ho scaldata.»  Disse Wose a Roy ancora addormentato da ieri. 
+
 «Di cosa mi volevi parlare Wose?»  Dommando`Roy mangiando la carne.
+
 «Io Roy, ti volevo parlare delle idee che mi sono pssate per la testa  sta mattina.»  commento` Wose non vedendo l` ora di raccontare le sue idee.
+
 «Vai Wose spara (parla-racconta.)» Disse Roy volendo sentire l`idee di Wose.
 «Allora Roy  la prima idea e` che noi si puo` fare una casa nel Neder nascosta, la seconda e` che si puo` fare una casa dentro all`albero, invece la terza e` una casa nella montagna. Cose preferisci?»  Wose propose delle idee a Roy.
 «Io non so` decidermi tra la prima e la terza. Io preferisco quella del Neder.»  Disse Roy con la voce certa.
