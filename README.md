@@ -4,11 +4,16 @@
 
 In un paese lontano si scateno` una guerra,come si sa` da tanto le guerre su minecraft non sono pericolose, perche` si puo sempre  rinascere, ma in qesto mondo avete solo una vita. E in questo mondo ci sono persone non tanto buone, ansi direi molto cattive. Roy era una brava persona, era educato,buono,si comportava bene. Per sfortuna nei giorni,nel suo villaggio arrivo` un  sacco di gente cattiva, ma molto cattiva. Roy non poteva lasciarle che  accada qualcosa di male o di brutto al suo villaggio, quindi decise di partecipare a questa guerra. Prima di andare a combattere passo` dal suo migliore amico Wose, perche non sapeva combattere, invece Wose sapeva combattere anche bene, per questo che passo` da lui.
 
-«Ciao, Wose lo sapevi che verso il nostpo villaggio si sta dirigendo una guerra?» Passo` la nutizia spaventato ma seza farlo vedere a Wose»
-«Cosa?!No non lo sapevo, ok allora io mi preparo, e tu?»  Domando` Wose preparandosi alla guerra che vivra`.
-« Come? E io cosa faccio, non so` combattere!» Disse preoccupato Roy.
-«Va bene ti insegnero` a combattere Roy.» Disse Wose  preparandosi all`allenamento.
-«Grazie Wose!» Ringrazio` Roy.
+>«Ciao, Wose lo sapevi che verso il nostpo villaggio si sta dirigendo una guerra?» Passo` la nutizia spaventato ma seza farlo vedere a Wose»
+
+>«Cosa?!No non lo sapevo, ok allora io mi preparo, e tu?»  Domando` Wose preparandosi alla guerra che vivra`.
+
+>« Come? E io cosa faccio, non so` combattere!» Disse preoccupato Roy.
+
+>«Va bene ti insegnero` a combattere Roy.» Disse Wose  preparandosi all`allenamento.
+
+>«Grazie Wose!» Ringrazio` Roy.
+
 Roy si alleno` tanto, e alla fine aveva finito di allenarsi. Dopo qualche giorno l` esercito di militari era gia nel villaggio. Uno dopo l` altro muoriva, Roy e Wose combattevano come dei veri guarrieri. Quando la guerra fu` finita Roy e Wose festeggiarono.
 «Wose abbiamo vinto alla  gurra!!!!» Esclamo` Roy allergo.
 «Si, Roy abbiamo vinto!!!!» Urlai dall`alegria Wose.
