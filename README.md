@@ -2,7 +2,7 @@
 
 ## Capitolo uno
 
-In un paese lontano si scateno` una guerra,come si sa` da tanto le guerre su minecraft non sono pericolose, perche` si puo sempre  rinascere, ma in qesto mondo avete solo una vita. E in questo mondo ci sono persone non tanto buone, ansi direi molto cattive. Roy era una brava persona, era educato,buono,si comportava bene. Per sfortuna nei giorni,nel suo villaggio arrivo` un  sacco di gente cattiva, ma molto cattiva. Roy non poteva lasciarle che  accada qualcosa di male o di brutto al suo villaggio, quindi decise di partecipare a questa guerra. Prima di andare a combattere passo` dal suo migliore amico Wose, perche non sapeva combattere, invece Wose sapeva combattere anche bene, per questo che passo` da lui.
+``In un paese lontano si scateno` una guerra,come si sa` da tanto le guerre su minecraft non sono pericolose, perche` si puo sempre  rinascere, ma in qesto mondo avete solo una vita. E in questo mondo ci sono persone non tanto buone, ansi direi molto cattive. Roy era una brava persona, era educato,buono,si comportava bene. Per sfortuna nei giorni,nel suo villaggio arrivo` un  sacco di gente cattiva, ma molto cattiva. Roy non poteva lasciarle che  accada qualcosa di male o di brutto al suo villaggio, quindi decise di partecipare a questa guerra. Prima di andare a combattere passo` dal suo migliore amico Wose, perche non sapeva combattere, invece Wose sapeva combattere anche bene, per questo che passo` da lui.``
 
 «Ciao, Wose lo sapevi che verso il nostpo villaggio si sta dirigendo una guerra?» Passo` la nutizia spaventato ma seza farlo vedere a Wose»
 
