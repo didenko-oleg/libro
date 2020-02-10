@@ -1,6 +1,9 @@
 # libro
 
-In un paese lontano si scateno` una guerra,come si sa` da tanto le guerre su minecraft non sono pericolose, perche` si puo sempre  rinascere, ma in qesto mondo avete solo una vita. E in questo mondo ci sono persone non tanto buone, ansi direi molto cattive. Roy era una brava persona, era educato,buono,si comportava bene. Per sfortuna nei giorni,nel suo villaggio arrivo` un  sacco di gente cattiva, ma molto cattiva. Roy non poteva lasciarle che  accada qualcosa di male o di brutto al suo villaggio, quindi decise di partecipare a questa guerra. Prima di andare a combattere passo` dal suo migliore amico Wose, perche non sapeva combattere, invece Wose sapeva combattere anche bene, per questo che passo` da lui. 
+## Capitolo uno
+
+In un paese lontano si scateno` una guerra,come si sa` da tanto le guerre su minecraft non sono pericolose, perche` si puo sempre  rinascere, ma in qesto mondo avete solo una vita. E in questo mondo ci sono persone non tanto buone, ansi direi molto cattive. Roy era una brava persona, era educato,buono,si comportava bene. Per sfortuna nei giorni,nel suo villaggio arrivo` un  sacco di gente cattiva, ma molto cattiva. Roy non poteva lasciarle che  accada qualcosa di male o di brutto al suo villaggio, quindi decise di partecipare a questa guerra. Prima di andare a combattere passo` dal suo migliore amico Wose, perche non sapeva combattere, invece Wose sapeva combattere anche bene, per questo che passo` da lui.
+
 «Ciao, Wose lo sapevi che verso il nostpo villaggio si sta dirigendo una guerra?» Passo` la nutizia spaventato ma seza farlo vedere a Wose»
 «Cosa?!No non lo sapevo, ok allora io mi preparo, e tu?»  Domando` Wose preparandosi alla guerra che vivra`.
 « Come? E io cosa faccio, non so` combattere!» Disse preoccupato Roy.
@@ -17,6 +20,7 @@ Dopo questa guerra i due amici partirono per  la ricerca di un postoideale per l
 «C`osaaa!!!???? Non abbiamo l`acqua ???»  Richiese Roy.
 «Hai detto bene Roy, non abbiamo l`acqua» Rspose Wose.
  I giorni passavano,le ore passavano, il tempo passava , ma i due amici non trovarono niente. Finche non trovassero il bosco dagli alberi di Acacia.
+ 
 «Hei, Wose siamo arrivati?» Chiese Roy sospirando dalla stanchezza.
 «Non abbiamo trovato nessun posto ideale Roy»  Rispose Wose.
 «Ma noi gia` lo stiamo cercando da uno,due,tre… insomma tonti giorni, non credi?»  Disse Roy.
@@ -33,9 +37,11 @@ Alla fine tutti e due decisero di fare  una casa per tutti e due. Loro per la ca
 
 
 Anche io vorrei vivere la` dentro. I ragazzi ci hanno lavorato tanto per far questa casa e tanta attenzione                   per farla dritta e precisa. Wose andava a prendere la legna come un vero boscaiolo, Roy andava a comprare qualcosa di inutile dai villlager, oppure proteggeva il villaggio, nel senso che continuava il suo lungo muro di legna e pietra intorno al villaggio. Quando erano stanchi e non avevano voglia di prendere la legna,fare il muro o di comprare dai villager i ragazzi  andavano in caverna.
+
 «E` da tanto che non ci attaccano o ci fanno qualcosa di cattivo.» Disse Roy saltendando dalla gioia.
 «Non ti pare stano che da tanto non ci vogliono morti?»  Domando` Wose.
 «No, ansi ne sono sicuro!»  Rispose Roy saltellando ancora.
+
 Passo` un mese e ancora niente di strano.Wosa e Roy decisero di far una passeggiata per il villaggio di mattina, mentre passeggiavano un villager si avvicino` e gli disse che si devono salvare perche verso il loro villaggio si dirigeva uno zunami. Roy e Wose si spaventarono, Roy decise  di allungare il muro ma a Wose non sembrava una bella idea. Quindi decise  proteggere la casa, ovviamente sinche` che avevano tantissima legna decise di proteggere la casa  con il legno, invece Roy stava  ancora a costruire quel muro di legno e pitra.  Dopo un giorno il zunami era molto ma molto vicino al loro villaggio, e dopo poco tempo inizio a coprire il villaggio di Roy e Wose. Il muro di Roy ha resistito le prime trenta quatro orde dello zunami ma dopo  il zunami l`ha coperti tutto. Wose sapeva che sarebbe successo qualcosa del genere e quindi sotto il suo letto ha fatto un passaggio segreto che portava sotto terra.
 Il passaggio era fatto di pietra.
 «A… ecco dove e` finita tutta la  pietra, che io aavevo preso.»  ussuro` Roy tra se` stesso.
