@@ -27,7 +27,7 @@ Passavano tanti giorni alla fine dopo tanto Roy e Wose trvarono un villaggio anc
 «Si` e perche` non avevamo piu una casa, capito Roy?»  Spiego` Wose a Roy.
 Alla fine tutti e due decisero di fare  una casa per tutti e due. Loro per la casa decisero di usare il legno,la pietra,il vetro. Allinizio pensavano di  fare una casa a un piano ma dopo cambiarono idea,  pensavano prima di fare una stanza per entrambi, ma dopo decisero di fare in modo che ognuno abbia la  sua. Roy stava al piano di sopra e Wose stava sotto. Passavano giorni e giorni e la casa fu finita, non era grande perche non serve grande a loro basta  una casa piccola.
 
-
+![pic](maxresdefault.jpg)
 
 
 
